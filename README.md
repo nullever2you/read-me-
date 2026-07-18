@@ -1,10 +1,5 @@
-# 𝙍𝙀𝘼𝘿 𝙈𝙀 !!! 👀
+# 𝖱𝖾𝖺𝖽 𝗆𝖾 𝗂 𝗀𝗎𝖾𝗌𝗌 .
 ⧽
-` 𝘐 𝘩𝘢𝘷𝘦 𝘯𝘰 𝘪𝘥𝘦𝘢 . `
+` 𝘔𝘢𝘯, 𝘵𝘩𝘪𝘴 𝘪𝘴 𝘣𝘰𝘳𝘪𝘯𝘨, 𝘐'𝘮 𝘨𝘰𝘯𝘯𝘢 𝘨𝘰 𝘱𝘭𝘢𝘺 𝘴𝘮𝘵𝘩 𝘸𝘰𝘳𝘵𝘩 𝘮𝘺 𝘵𝘪𝘮𝘦. — [𝗡𝗘𝗜𝗟] `
 
-: hihi call me null / nullary / whatever you want to call me !!
-
-: I love baldis basics hahah!!... 
-baldi fans pls interact with me pls pls plsss /including raldis crackhouse fans hahahaahahahahahah
-
-I'm too lazy to do this shit I'm sorry
+yeah uh I'm way too tired
