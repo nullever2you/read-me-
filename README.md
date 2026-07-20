@@ -4,12 +4,12 @@
 
 (image here)
 
-HEY call me Nullary / Null.
-this is a work in progress thing but here's some things for you to know abt me.
 
-I go by he/him BUTTTT any pronouns are okay. (although I am a female irl)
+✦ 🕶️「 :  𝙘𝙖𝙡𝙡 𝙢𝙚 𝙉𝙪𝙡𝙡 / 𝙉𝙪𝙡𝙡𝙖𝙧𝙮 / 𝙉𝙚𝙞𝙡 .
 
-minor , so DNI if you are gonna be weird.
+:  𝙝𝙚/𝙝𝙞𝙢/𝙖𝙣𝙮 !!
+
+:
 
 I am a proud Baldis Basics and Raldis Crackhouse fan. 
 
