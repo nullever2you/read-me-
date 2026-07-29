@@ -28,7 +28,7 @@
 
 :   𝙢𝙪𝙡𝙩𝙞𝙛𝙖𝙣𝙙𝙤𝙢 + 𝙢𝙪𝙡𝙩𝙞𝙨𝙝𝙞𝙥𝙥𝙚𝙧. 𝘐 𝘣𝘢𝘳𝘦𝘭𝘺 𝘩𝘢𝘵𝘦 𝘰𝘯 𝘴𝘩𝘪𝘱𝘴 𝘤𝘢𝘶𝘴𝘦 𝘐'𝘮 𝘦𝘱𝘪𝘤 𝘢𝘯𝘥 𝘐 𝘥𝘰𝘯'𝘵 𝘥𝘰 𝘴𝘵𝘶𝘱𝘪𝘥 𝘴𝘩𝘪𝘱 𝘸𝘢𝘳𝘴.
 
-:   
+# 𝙛𝙤𝙧 𝙋𝙏 𝙥𝙡𝙖𝙮𝙚𝙧𝙨 !
 
 ` * ints & dnis .  `
 
@@ -53,6 +53,10 @@
 > 🚫 𝘱𝘦𝘰𝘱𝘭𝘦 𝘸𝘩𝘰 𝘥𝘰𝘯'𝘵 𝘤𝘢𝘳𝘦 𝘢𝘣𝘰𝘶𝘵 𝘣𝘰𝘶𝘯𝘥𝘢𝘳𝘪𝘦𝘴.
 
 > 🚫 𝘚𝘖𝘔𝘌 𝘴𝘦𝘯𝘴𝘪𝘵𝘪𝘷𝘦 𝘱𝘦𝘰𝘱𝘭𝘦 (𝙠𝙚𝙮𝙬𝙤𝙧𝙙: 𝙨𝙤𝙢𝙚) 𝘓𝘰𝘰𝘬, 𝘐 𝘢𝘮 𝘢𝘭𝘴𝘰 𝘢 𝘴𝘦𝘯𝘴𝘪𝘵𝘪𝘷𝘦 𝘱𝘦𝘳𝘴𝘰𝘯 𝘮𝘺𝘴𝘦𝘭𝘧. 𝘉𝘶𝘵 𝘚𝘖𝘔𝘌 𝘰𝘧 𝘵𝘩𝘦𝘴𝘦 𝘱𝘦𝘰𝘱𝘭𝘦 𝘫𝘶𝘴𝘵 𝘬𝘪𝘯𝘥𝘢 𝘮𝘢𝘬𝘦 𝘮𝘦 𝘶𝘯𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦. 𝘚𝘰𝘳𝘳𝘺.
+
+> 🚫 𝘫𝘶𝘴𝘵 𝘢𝘯𝘺𝘰𝘯𝘦 𝘪𝘯 𝘨𝘦𝘯𝘦𝘳𝘢𝘭 𝘵𝘩𝘢𝘵 𝘐 𝘢𝘮 𝘯𝘰𝘵 𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦 𝘸𝘪𝘵𝘩 .... 𝘐 𝘣𝘭𝘰𝘤𝘬 𝘧𝘳𝘦𝘦𝘭𝘺 𝘣𝘵𝘸
+
+` don't expect me to be your friend immediately, I am definitely not comfortable if you ask to be my friend when I just met you. We can only me moots/friends if we talk to each other for a while (or if you have my interests like bbieal and raldi for example....🥹 `
 
 (image here)
 
