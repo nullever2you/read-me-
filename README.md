@@ -1,17 +1,16 @@
-this was ASS , gonna rmk it later
+# basic/pun intended info.
+🕶️  :
 
-null/nullary
+- null/nullary
 
-minor (18+ people, please be cautious on who you are talking to. 16+ people included, weirdos dni yo.)
+I love being called a he/him , but any pronouns are okay too. I just usually prefer male pronouns. Though I have mixed emotions whether if I'm Trans(FtM) or bigender...    *  ` since I feel like a guy online, but both irl. `
 
-I love being called a "he/him" but any pronouns are okay
+minor , I don't really care if you are like.. 16 , 18, whatever, but please block me if you aren't comfortable with minors.  (also preds/kid lovers, zoophiles, fuck off and kill yourself)
 
-baldis basics,, and raldis crackhouse fans INTERACT WITH ME NOW,, don't be shy.........
+baldis basics & raldis crackhouse fan ` I don't support the original creator of RC's actions, I think they were racist to ppl but I don't really have any knowledge from the drama. `
 
-gamervirus is life yo
+I have very terrible memory when it comes to important things or education, which is VERY bad.
 
-I don't talk to anyone often, but yeah
+my humor is a dumpster.
 
-i kinda isloate myself from uhhh people yo
-
-my favorite word is "yo"
+I'm not gonna put anything here I'm sorry I'm uhhh lazy yo
